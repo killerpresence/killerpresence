@@ -17,9 +17,7 @@
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ 
 
-![f76e87c7647f1a8671fb47414fb339ae](https://github.com/killerpresence/killerpresence/assets/144563947/488196c1-374c-4098-81c4-cdf7f2fa1440)
-
-art by torabuki on tumblr ![tMrI9Tz](https://github.com/killerpresence/killerpresence/assets/144563947/83e3bef0-04d1-4f04-8069-9604a120ffdf)
+ ![4b07d8c8052c0d115e9a3e3a0cca3164](https://github.com/killerpresence/killerpresence/assets/144563947/397cbef7-58d2-4c31-a46b-f836bd2116e9)
 
 
 
