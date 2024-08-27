@@ -4,7 +4,8 @@
 
 # ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![5KAqW7v](https://github.com/killerpresence/killerpresence/assets/144563947/634096ee-8c60-4af1-a72d-1f12a9cf5c17) killers / bian ![oyJ6Lq5](https://github.com/killerpresence/killerpresence/assets/144563947/aeede484-c5e0-4232-9769-d75ff43dd2a0)
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ 
+ ![tumblr_fbe9843922925f9aacdc2920462e8848_29465537_640](https://github.com/user-attachments/assets/46f073e8-9f1a-4485-b501-9d02fb528084)
+
 
 ‎![R5DirHV](https://github.com/killerpresence/killerpresence/assets/144563947/0ac0d7d2-83bc-4382-bd23-3923d5aeb77e) usually *offtab* . **whisp2int** ![5bRWeGH](https://github.com/killerpresence/killerpresence/assets/144563947/1ecdfe35-a6d0-4001-ace8-fc248f9ce4e6)
 
@@ -33,7 +34,8 @@
 
 
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ 
+ ![tumblr_1c29eb96376de8b495512de39e27e52a_4d609254_640](https://github.com/user-attachments/assets/e5bec778-8250-41f1-bc25-5ebb403bbf39)
+
 
  ![4b07d8c8052c0d115e9a3e3a0cca3164](https://github.com/killerpresence/killerpresence/assets/144563947/397cbef7-58d2-4c31-a46b-f836bd2116e9)
 
