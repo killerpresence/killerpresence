@@ -8,13 +8,13 @@
 
 
 
-
-‎<div align="center">‎‎‎bianca♡
+# <div align="center">bianca♡
+‎
 ![](https://images2.imgbox.com/7e/ab/x8BqVvU0_o.png)
 
 
-<div align="center">dni
-<table>
+# <div align="center">dni
+<div align="center"><table>
   <tr>
     <th>
       $\color{Pink}{\textsf{⤷proshippers/darkshippers/lolishotacons}}$ <br>
@@ -27,8 +27,8 @@
 </tr>
 </table>
 
-<div align="center">byi
-<table>
+# <div align="center">byi
+<div align="center"><table>
   <tr>
     <th>
       $\color{Pink}{\textsf{⤷i tend to answer late}}$ <br>
